@@ -1,0 +1,2 @@
+# vidyasagarschool.github.io
+ Vidyasagar Sr. Sec. School stands tall among the prestigious educational institutions of Burhar Distt. Sahdol, celebrated for delivering unparalleled State Board education. At Vidyasagar, believe that education should lead the students to a practical, confident and successful living. In our school, we firmly believe that every child is a beacon of hope in the world. We strive to nurture our students as dreamers, fostering their potential to become proud achievers in the future.
